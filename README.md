@@ -1,2 +1,0 @@
-# ysalane-
-my art portfolio 
